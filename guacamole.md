@@ -6,4 +6,4 @@
 -onion yellow
 
 ## instructions'
-food is sweet lol
+Preparing guac for all
